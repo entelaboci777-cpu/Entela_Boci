@@ -1,3 +1,5 @@
+![Kopertina](20260126_002105.jpg)
+
 # 📚 Materiali di Immunologia - Entela Boçi
 ​### 📖 Libro Abbas (Anno 2024)
 Qui puoi scaricare il libro completo in formato PDF:
