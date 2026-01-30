@@ -1,6 +1,9 @@
-![Kopertina](20260126_002105.jpg)
+# 📚 🏥 Biblioteca Medica Digitale -Medicina e Chirurgia - Entela Boçi-UNIZKM (Tiranë)/ Tor Vergata (Roma)
 
-# 📚 Materiali di Immunologia - Entela Boçi
+
+​---
+![Kopertina](20260126_002105.jpg)
+### 📚 Materiali di Immunologia - Entela Boçi
 ​### 📖 Libro Abbas (Anno 2024)
 Qui puoi scaricare il libro completo in formato PDF:
 [SCARICA IL LIBRO QUI](https://mega.nz/file/Huw10DLQ#l0NAVLFHf87GdWcQmCdglsykrK38Lr5z-AMfMHs0NI)
