@@ -1,4 +1,4 @@
-# 📚 🏥 Biblioteca Medica Digitale -Medicina e Chirurgia - Entela Boçi-UNIZKM (Tirana)/ Tor Vergata (Roma)
+# 📚 🏥 Biblioteca Medica Digitale -Risorse Medicina e Chirurgia - Entela Boçi-UNIZKM/Tor Vergata
 ​
 
 ---
