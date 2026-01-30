@@ -19,5 +19,6 @@ Këtu mund të gjeni 75 skedarë me materiale studimi:
 
 
 ---
+![Kopertina Patologia](20260130_170544.jpg)
 ### 📚 Libri: Patologia Generale - Pontieri
 [👉 SCARICA IL LIBRO QUI](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
