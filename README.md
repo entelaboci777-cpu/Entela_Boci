@@ -2,7 +2,7 @@
 ​
 
 ---
-![.](20260126_002105.jpg)  
+![Kopertina Immunologia](20260126_002105.jpg)  
 
 
 ### 📚 Libro: Immunologia cellulare e molecolare- Abbass (Anno 2024)
