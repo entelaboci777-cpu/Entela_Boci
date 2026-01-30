@@ -1,11 +1,16 @@
-# 📚 🏥 Biblioteca Medica Digitale -Medicina e Chirurgia - Entela Boçi-UNIZKM (Tiranë)/ Tor Vergata (Roma)
-​---
-![Kopertina Immunologia](20260126_002105.jpg) 
+# 📚 🏥 Biblioteca Medica Digitale -Medicina e Chirurgia - Entela Boçi-UNIZKM (Tirana)/ Tor Vergata (Roma)
+​
+
+---
+![.](20260126_002105.jpg)  
+
+
 ### 📚 Libro: Immunologia cellulare e molecolare- Abbass (Anno 2024)
 [SCARICA IL LIBRO QUI](https://mega.nz/file/Huw10DLQ#l0NAVLFHf87GdWcQmCdglsykrK38Lr5z-AMfMHs0NI)
 
 
 ​---
+
 ​### 📊 Slide delle lezioni (17 lezioni)
 Ecco la cartella con il riepilogo di tutte le slide:
 [APRI LA CARTELLA DELLE SLIDE QUI](https://mega.nz/folder/X3QhBIAS#suHuRMal4069gRFIEit84w)
