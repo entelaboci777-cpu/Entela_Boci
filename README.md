@@ -3,7 +3,7 @@
 
 ---
 ![Kopertina Immunologia](20260130_183444.jpg) 
-### 📚 Libro: Immunologia cellulare e molecolare- Abbass (Anno 2024)
+### 📚 Libro: Immunologia cellulare e molecolare- Abbass Decima Edizione (Anno 2024)
 [SCARICA IL LIBRO QUI](https://mega.nz/file/Huw10DLQ#l0NAVLFHf87GdWcQmCdglsykrK38Lr5z-AMfMHs0NI)
 
 
