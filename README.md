@@ -8,6 +8,7 @@
 
 
 ​---
+
 ​### 📊 Slide delle lezioni (17 lezioni)
 Ecco la cartella con il riepilogo di tutte le slide:
 [APRI LA CARTELLA DELLE SLIDE QUI](https://mega.nz/folder/X3QhBIAS#suHuRMal4069gRFIEit84w)
