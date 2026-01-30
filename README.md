@@ -21,7 +21,6 @@ Qui puoi trovare 75 file di materiale di studio:
 
 
 ---
-![Kopertina Patologia](20260130_170544.jpg) 
 ### 📚 Libro: Patologia Generale - Pontieri
 [👉 SCARICA IL LIBRO QUI](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
 
