@@ -22,5 +22,21 @@ Qui puoi trovare 75 file di materiale di studio:
 
 ---
 ![Kopertina Patologia](20260130_170544.jpg) 
-### 📚 Libri: Patologia Generale - Pontieri
+### 📚 Libro: Patologia Generale - Pontieri
 [👉 SCARICA IL LIBRO QUI](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
+
+
+---
+
+## 🦴 Anatomia Umana
+### 📚 Materiale Didattico: Testi e Atlanti
+Qui puoi trovare i principali manuali e atlanti di Anatomia (Anastasi, Martini, Netter, ecc.)
+[👉 APRI LA CARTELLA (MEGA)](https://mega.nz/folder/72ZmHZpB#jDWD8-FRaiUeILN2nfeJrA)
+
+
+
+
+
+
+
+
