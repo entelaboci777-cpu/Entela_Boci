@@ -29,6 +29,8 @@ Qui puoi trovare 75 file di materiale di studio:
 ---
 
 ## 🦴 Anatomia Umana
+​![Anatomia](20260130_220409.jpg)
+
 ### 📚 Materiale Didattico: Testi e Atlanti
 Qui puoi trovare i principali manuali e atlanti di Anatomia (Anastasi, Martini, Netter, ecc.)
 [👉 APRI LA CARTELLA (MEGA)](https://mega.nz/folder/72ZmHZpB#jDWD8-FRaiUeILN2nfeJrA)
