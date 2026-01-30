@@ -8,3 +8,7 @@ Qui puoi scaricare il libro completo in formato PDF:
 ​### 📊 Slide delle lezioni (17 lezioni)
 Ecco la cartella con il riepilogo di tutte le slide:
 [APRI LA CARTELLA DELLE SLIDE QUI](https://mega.nz/folder/X3QhBIAS#suHuRMal4069gRFIEit84w)
+
+### 📂 Materiale Extra: AIMS Medicina & Chirurgia
+Këtu mund të gjeni 75 skedarë me materiale studimi:
+[👉 KLIKO KËTU PËR TË HAPUR MATERIALET AIMS](https://mega.nz/folder/72In3QqT#TCgkSOs39CdkFQZEqWxc9A)
