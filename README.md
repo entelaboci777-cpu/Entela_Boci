@@ -22,8 +22,9 @@ Qui puoi trovare 93 file di materiale di studio:
 
 
 ---
-### 📚 Libro: Patologia Generale - Pontieri
-[👉 SCARICA IL LIBRO QUI](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
+### 📚 Libro: Patologia Generale - Robbins e Cotran 8 Edizione
+[👉 SCARICA IL LIBRO QUI](https://mega.nz/file/Gig2nSaL#FgSmMXd1vQ-xSt2VolqoAY5TeUUjyQcRmBmAJJb_dIs)
+[📂 APRI L'INTERA CARTELLA PATOLOGIA (Libri e Slide)](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
 
 
 ---
