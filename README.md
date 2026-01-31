@@ -48,7 +48,7 @@ In questa cartella troverete materiali completi per lo studio dei tessuti e dell
 ### 🧫 Microbiologia Medica
 Qui puoi trovare materiali aggiornati per lo studio di batteri, virus e microrganismi
 
-* [👉 APRI LA CARTELLA (Libri e Slide)](https://mega.nz/folder/iq5EQADY#TZGqS-7CeydVms6R8zGM1Q)
+* [👉 APRI LA CARTELLA QUI](https://mega.nz/folder/iq5EQADY#TZGqS-7CeydVms6R8zGM1Q)
 
 
 
