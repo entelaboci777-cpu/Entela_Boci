@@ -3,13 +3,14 @@
 
 ---
 ![Kopertina Immunologia](20260130_183444.jpg) 
-### 📚 Libro: Immunologia cellulare e molecolare- Abbass Decima Edizione (Anno 2024)
-[👉 SCARICA IL LIBRO QUI](https://mega.nz/folder/L3wUEbbL#YtG14rY53Gz2RrMLEwNlxw)
+### 📚 Libro: Immunologia cellulare e molecolare - Abbas Decima Edizione (Anno 2024)
+* [👉 SCARICA IL LIBRO QUI (Link Diretto)](https://mega.nz/file/Huw1QDlQ#lONAVLFHf87GdWcQmCdagIsykrK38Lr5z-AWFL_p_E8)
+* [📂 APRI L'INTERA CARTELLA IMMUNOLOGIA (Libri e Slide)](https://mega.nz/folder/L3wUEbbL#YtG14rY53Gz2RrMLEwNlxw)
 
 
 ​---
 
-​### 📊 Slide delle lezioni (17 lezioni)
+​### 📊 Slide Immunologia (16 lezioni)
 Ecco la cartella con il riepilogo di tutte le slide:
 ​[👉 APRI LA CARTELLA DELLE SLIDE QUI](https://mega.nz/folder/X3QhBIAS#suHuRMaI4O69gRFIEit84w)
 
