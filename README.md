@@ -59,6 +59,14 @@ In questa sezione troverete manuali e materiali didattici per la Chirurgia Gener
 * [👉 APRI LA CARTELLA (Materiali di Studio)](https://mega.nz/folder/HygwjYpC#WNxfhH-N4yDhTrJHXqZh2g)
 
 
+---
+
+### 💊 Farmacologia
+In questa sezione sono disponibili i testi e i materiali didattici completi per lo studio della Farmacologia.
+
+* [👉 APRI LA CARTELLA (Libri e dispense)](https://mega.nz/folder/u64QkahC#Eq4gAYgGj8EgMsQxCeTUUA)
+
+
 
 
 
