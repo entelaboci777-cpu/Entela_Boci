@@ -51,6 +51,14 @@ Qui puoi trovare materiali aggiornati per lo studio di batteri, virus e microrga
 * [👉 APRI LA CARTELLA QUI](https://mega.nz/folder/iq5EQADY#TZGqS-7CeydVms6R8zGM1Q)
 
 
+---
+
+### 🏥 Chirurgia Generale
+In questa sezione troverete manuali e materiali didattici per la Chirurgia Generale.
+
+* [👉 APRI LA CARTELLA (Materiali di Studio)](https://mega.nz/folder/HygwjYpC#WNxfhH-N4yDhTrJHXqZh2g)
+
+
 
 
 
