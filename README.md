@@ -16,7 +16,7 @@ Ecco la cartella con il riepilogo di tutte le slide:
 
 ---
 ### 📂 Materiale Extra: AIMS Medicina & Chirurgia
-Qui puoi trovare 75 file di materiale di studio:
+Qui puoi trovare 93 file di materiale di studio:
 [👉 CLICCA QUI PER APRIRE I MATERIALI AIMS](https://mega.nz/folder/72In3QqT#TCgkSOs39CdkFQZEqWxc9A)
 
 
