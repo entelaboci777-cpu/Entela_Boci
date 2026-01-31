@@ -35,6 +35,14 @@ Qui puoi trovare i principali manuali e atlanti di Anatomia (Anastasi, Martini, 
 [👉 APRI LA CARTELLA (MEGA)](https://mega.nz/folder/72ZmHZpB#jDWD8-FRaiUeILN2nfeJrA)
 
 
+---
+
+### 🔬 Istologia ed Embriologia
+In questa cartella troverete materiali completi per lo studio dei tessuti e dello sviluppo embriologico
+
+* [👉 APRI LA CARTELLA QUI](https://mega.nz/folder/a75wUDSL#tK_vHxUZMrWS9QcbSzODQg)
+
+
 
 
 
