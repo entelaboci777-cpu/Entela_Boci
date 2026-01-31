@@ -22,7 +22,7 @@ Qui puoi trovare 93 file di materiale di studio:
 
 ---
 ### 📚 Libro: Patologia Generale - Robbins e Cotran 8 Edizione
-* [👉 SCARICA IL LIBRO: Robbins e Cotran](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
+* [👉SCARICA IL LIBRO:Robbins e Cotran](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
 * [📂 APRI L'INTERA CARTELLA PATOLOGIA](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
 
 
