@@ -4,7 +4,8 @@
 ---
 ![Kopertina Immunologia](20260130_183444.jpg) 
 ### 📚 Libro: Immunologia cellulare e molecolare - Abbas Decima Edizione (Anno 2024)
-* [👉 SCARICA IL LIBRO QUI](https://mega.nz/file/n3ZRCIhZ#XRtfMGEQibryN8QvWxniANF_jLcEXWpF8S4RChcta8s)
+
+[SCARICA IL LIBRO QUI](https://mega.nz/file/n3ZRCIhZ#XRtfMGEQibryN8QvWxniANF_jLcEXWpF8S4RChcta8s)
 * [📂 APRI L'INTERA CARTELLA IMMUNOLOGIA (Libri e Slide)](https://mega.nz/folder/L3wUEbbL#YtG14rY53Gz2RrMLEwNlxw)
 
 
@@ -23,7 +24,8 @@ Qui puoi trovare 93 file di materiale di studio:
 
 ---
 ### 📚 Libro: Patologia Generale - Robbins e Cotran 8 Edizione
-* [👉 SCARICA IL LIBRO QUI](https://mega.nz/file/Gig2nSaL#FgSmMXd1vQ-xSt2VolqoAY5TeUUjyQcRmBmAJJb_dIs)
+
+[SCARICA IL LIBRO QUI](https://mega.nz/file/Gig2nSaL#FgSmMXd1vQ-xSt2VolqoAY5TeUUjyQcRmBmAJJb_dIs)
 * [📂 APRI L'INTERA CARTELLA PATOLOGIA (Libri e Slide)](https://mega.nz/folder/275UgSTB#ulKozib5G9jfm-3lzOQFNw)
 
 
