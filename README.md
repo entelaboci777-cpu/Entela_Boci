@@ -67,6 +67,14 @@ In questa sezione sono disponibili i testi e i materiali didattici completi per 
 * [👉 APRI LA CARTELLA QUI](https://mega.nz/folder/u64QkahC#Eq4gAYgGj8EgMsQxCeTUUA)
 
 
+---
+
+### 🩺 Dermatologia
+In questa sezione potete trovare i testi clinici e gli atlanti fotografici per lo studio della Dermatologia e Venereologia.
+
+* [👉 APRI LA CARTELLA (Mega)](https://mega.nz/folder/rrQhHZqI#b0vD0YUbdRO8DfHvVftJPw)
+
+
 
 
 
